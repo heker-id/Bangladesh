@@ -4,7 +4,7 @@ Watch The Tutorial
 
 Video Link
 
-coming soon...
+https://youtu.be/xauyeyOuXOI
 
 Use These Awessome Commands and Enjoy..
 
